@@ -1,6 +1,6 @@
 
 
-# satoru
+# BYF / PONYTOWN INFOS!!
 
 - PLEASE dont treat me as the characters im cosplaying except maybe satoru its annoying
 - sometimes i get rlly mean but in a playful way / i say slurs i can reclaim so please tell me if any of this makes you uncomfy or just dont interact with me 
